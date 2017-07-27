@@ -1,2 +1,2 @@
-# It's a resume of Sohan Usha Shyam Tirpude
+# It's a Personal Website of Sohan Usha Shyam Tirpude
 #### Resume
